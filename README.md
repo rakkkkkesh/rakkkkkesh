@@ -8,11 +8,11 @@
 
 - 🌱 I’m currently learning **Advance Java & React Js**
 
-- 💬 Ask me about **C, Java, Javascript, Wev Dev.**
+- 💬 Ask me about **C, Java, Javascript, Web Dev.**
 
 - 📫 How to reach me **rakeshpyadav2615@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1YEPAFwMj3qc-gcWKH3fEaSO957FeRHwC/view?usp=drive_link](https://drive.google.com/file/d/1YEPAFwMj3qc-gcWKH3fEaSO957FeRHwC/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1BLCtHGbgH28imkzUOur4tJm6SDxBqnkw/view?usp=sharing](https://drive.google.com/file/d/1BLCtHGbgH28imkzUOur4tJm6SDxBqnkw/view?usp=sharing)
 
 - ⚡ Fun fact **I love capturing memories 📷.**
 
