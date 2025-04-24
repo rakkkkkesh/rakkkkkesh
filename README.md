@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **rakeshpyadav2615@gmail.com**
 
-- 📄 Know about my experiences [Download CV](https://drive.google.com/file/d/1h8Bf5-ucE2q6BlB2XG0V6eiLFOUJtkKb/view?usp=drivesdk)
+- 📄 Know about my experiences [Download CV](https://drive.google.com/file/d/1dq3bcf44bkH3WWSet8-XoHGjlCKZYwYs/view?usp=drive_link)
 
 - ⚡ Fun fact **I love capturing memories 📷.**
 
